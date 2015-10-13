@@ -1,0 +1,1 @@
+# [Vojtech Vitek CV (PDF)](https://docs.google.com/viewer?url=https://github.com/VojtechVitek/CV/raw/master/CV_Vojtech_Vitek_EN.pdf)
